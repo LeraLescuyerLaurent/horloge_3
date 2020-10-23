@@ -1,4 +1,4 @@
-simple horloge claire et sombre
+simple horloge sombre
 
 tutoriel de la chaine youtube Online Tutorial
 
